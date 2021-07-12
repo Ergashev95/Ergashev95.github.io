@@ -1,1 +1,1 @@
-# Ergashev95.github.io
+Burger proekti
